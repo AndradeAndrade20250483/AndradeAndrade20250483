@@ -1,1 +1,0 @@
-https://giphy.com/gifs/anime-bocchi-the-rock-UsVX1QDSLlCjw8PpJS
